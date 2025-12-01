@@ -1,16 +1,15 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=vampmunson&label=welcome+to+hellfire)
 
-<!--
-**vampmunson/vampmunson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">✧･ﾟ: *✧･ﾟ:*
 
-Here are some ideas to get you started:
+![20033](https://github.com/user-attachments/assets/b5df29f7-7d78-426e-b503-3e021563432a)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">⋆.˚loving eddie munson since 2022 ♡‧₊˚
+
+<p align="center">✧･ﾟ: *✧･ﾟ:*
+  
+𖤐 𓈒࣪  ᭡ ˖  allysa/eddie ! she/her/they
+respectfully, i don't ship steddie : ?! 𖦹︎   ִֶָ  ࣪ ៹  ☄️ 
+
+𖤐 𓈒࣪  ᭡ ˖  not a roleplayer ! artist/writer  𖦹︎
+18+ years old : semi-verbal/non-verbal % ‹𝟹  ִֶָ  ࣪ ៹  ☄️ 
