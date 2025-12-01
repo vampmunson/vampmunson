@@ -12,4 +12,4 @@
 respectfully, i don't ship steddie : ?! 𖦹︎   ִֶָ  ࣪ ៹  ☄️ 
 
 𖤐 𓈒࣪  ᭡ ˖  not a roleplayer ! artist/writer  𖦹︎
-18+ years old : semi-verbal/non-verbal % ‹𝟹  ִֶָ  ࣪ ៹  ☄️ 
+18+ years old : semi-verbal/non-verbal : proship DNI % ‹𝟹  ִֶָ  ࣪ ៹  ☄️ 
