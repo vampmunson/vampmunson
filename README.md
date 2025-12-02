@@ -8,8 +8,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-𖤐 𓈒࣪  ᭡ ˖  allysa/eddie ! she/her/they !
-respectfully, i don't ship steddie : ?! 𖦹︎   ִֶָ  ࣪ ៹  ☄️ 
-
-𖤐 𓈒࣪  ᭡ ˖  not a roleplayer ! artist/writer  𖦹︎
-18+ years old : semi-verbal/non-verbal : proship DNI % ‹𝟹  ִֶָ  ࣪ ៹  ☄️ 
+𖤐 𓈒allysa/eddie | she/her/they | respectfully, i don't ship steddie | not a roleplayer | artist/writer |18+ years old | semi-verbal/non-verbal | proship DNI 
