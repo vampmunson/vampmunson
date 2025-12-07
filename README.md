@@ -8,4 +8,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-𖤐 allysa/eddie | she/her/they | respectfully, not a steddie shipper | not a roleplayer | artist/writer | 18+ years old | semi-verbal/non-verbal | proship/darkship DNI | eddie is heavily my comfort character
+𖤐 allysa/eddie | she/her/they | respectfully, not a steddie shipper | not a roleplayer | artist/writer| semi-verbal/non-verbal | proship/darkship DNI | eddie is heavily my comfort character
